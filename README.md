@@ -1,1 +1,1 @@
-https://images.steamusercontent.com/ugc/13333936644274033690/A2DD74658811AD0565645D66590A20F37F2317BB/
+<img width="130" height="101" alt="image" src="https://github.com/user-attachments/assets/893aced5-b682-4e78-b005-e0cad483f09f" />
